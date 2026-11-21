@@ -1,2 +1,4 @@
 # ASE-Portfolio-Cardenas
-CPELX330 
+**MIA GABRIELLE CARDENAS**  
+**COE231**  
+**CPELX330-ENGR. MARWIN B. ALEJO** 
